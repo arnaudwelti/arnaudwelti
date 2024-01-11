@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @arnaudwelti and get too many passions... but Bikes is one of the first !
+- 👀 I’m interested in Digitalisation
+- 🌱 and... i’m currently learning Data's Eng.
+- ⚡ Fun fact: I Love pizza(S)
